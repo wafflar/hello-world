@@ -2,3 +2,6 @@
 
 
 yahhhoooooooooooo!!
+
+
+なんでやねん！笑
